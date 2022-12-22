@@ -24,4 +24,4 @@
 7. Being Recognized 
 8. Knowing what's next
 9. Realizing and availing new possibilities.
-Sparking further leadership thinking and actions.
+10. Sparking further leadership thinking and actions.
